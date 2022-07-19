@@ -29,7 +29,7 @@
 ### Weaknesses?
 • "I am a straightforward person, and I cannot say no when someone asks me for help." 
 
----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------
 ### Describe yourself in one word?
 • Original, 
 • Genuine, 
@@ -55,3 +55,5 @@
 • Can you please describe the responsibilities of the position?
 
 • Thank you for giving me this opportunity. After my overall performance till now if I got selected what I need to improve and if I'm not selected how can I succeed further. Can you give any advice sir?
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
