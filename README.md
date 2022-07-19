@@ -1,4 +1,4 @@
-# INTERVIEW QnA
+# INTERVIEW Questions and Answers
 
 ### Tell me about yourself?
 • My full name is Suraj Harishankar Vishwakarma.
