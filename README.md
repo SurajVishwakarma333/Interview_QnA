@@ -15,7 +15,7 @@
 
 • My hobbies is to play cricket and do sketching.
 
-• Thank you for giving this opportunity to introduce myself.
+• That's it! /or/ Thank you for giving this opportunity to introduce myself.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 ### Why are you applying for this job? (or) Why this role attract you?
